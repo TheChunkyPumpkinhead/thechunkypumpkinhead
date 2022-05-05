@@ -1,5 +1,6 @@
 
-Hi 👋 My name is Chris Campos
+Howzit! 👋
+My name is Chris Campos
 =============================
 
 *   🌍  I'm based in Portland, Or
