@@ -3,7 +3,7 @@ Howzit! 🤙🏽<br>
 My name is Chris Campos
 =============================
 
-*   🌍  I'm based in Portland, Or
+*   🌍  I'm based in Ft. Lauderdale
 .
   
 <p align="left">
